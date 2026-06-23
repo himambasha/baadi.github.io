@@ -1,1 +1,0 @@
-# baadi.github.io
